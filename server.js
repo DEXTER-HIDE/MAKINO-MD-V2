@@ -1,5 +1,5 @@
 //By:  Tᴀɪʀᴀ Mᴀᴋɪɴᴏ
-//https://wa.me/2347080968564
+//https://wa.me/94789958225
 //https://github.com/anonphoenix007
 //https://t.me/Taira_makino
 //https://whatsapp.com/channel/0029VaY0Zq32P59piTo5rg0K
